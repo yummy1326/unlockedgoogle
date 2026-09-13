@@ -1,6 +1,6 @@
 https://yuriko.uk/drrr/
 https://google.com
-https://srb2.com
+https://srb2.org
 https://afd2025.srb2.org
 https://
 https://
